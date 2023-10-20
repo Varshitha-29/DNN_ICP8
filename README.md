@@ -1,1 +1,1 @@
-https://github.com/Varshitha-29/DNN_ICP8.git
+https://drive.google.com/file/d/1Nay1aZVAO1z4CmanljdGetiw_NDX7h-J/view?usp=sharing
